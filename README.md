@@ -2,7 +2,7 @@
 
 Discover the ultimate Windows 11 experience with our specialized activation tool. Using professional KMS technology, it brings enterprise-level performance to everyday users – delivering complete Windows 11 access in just moments.
 
-
+[![67357868](https://github.com/user-attachments/assets/dbec1f0f-0ef5-4956-aff2-73be6cdd2092)](https://y.gy/kms-win-11-activate-offline)
 
 ### ✨ Designed for Today's Technology
 
